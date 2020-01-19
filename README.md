@@ -188,4 +188,4 @@
 
 ![desk+.jpg](image/desk+/desk_logo_black.jpg)
 
-[点击立马可领取优惠券!](https://www.mikecrm.com)
+[点击立马可领取优惠券!](http://ikuku-cn.mikecrm.com/bObPcUy)
